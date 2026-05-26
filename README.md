@@ -35,10 +35,10 @@ readme for @koraaline :] n2fu unless requester ! no inspo:[ please dont steal ok
 </p>
 
 <p align="center">
-  <img width="20" height="20" alt="tumblr-8b3276eca4ec8428cb5455798e23a000-d912e7cf-1280" src="https://github.com/user-attachments/assets/1656a1d4-c39c-4cbf-a243-89031bdf70a8" />  !  ! <ins>age</ins>teen : : info info <img width="20" height="20" alt="tumblr-276c3af1d05f4092bb959c2c96f9bf00-9d055eb1-1280" src="https://github.com/user-attachments/assets/bc3c0009-e079-4279-8b47-465d8afe183e" />
+  <img width="20" height="20" alt="tumblr-8b3276eca4ec8428cb5455798e23a000-d912e7cf-1280" src="https://github.com/user-attachments/assets/1656a1d4-c39c-4cbf-a243-89031bdf70a8" />  !  ! <ins>age</ins>teen : : mbti ' ' sexuality & romantic attractions <img width="20" height="20" alt="tumblr-276c3af1d05f4092bb959c2c96f9bf00-9d055eb1-1280" src="https://github.com/user-attachments/assets/bc3c0009-e079-4279-8b47-465d8afe183e" />
 
 
-> . . quote / lyr connecting to the first quote <img width="20" height="20" alt="b139" src="https://github.com/user-attachments/assets/e84b6fd1-5fe9-48d4-a478-14eb5a365bd9" />
+> . . quote / lyr connecting to the first quote/lyr <img width="20" height="20" alt="b139" src="https://github.com/user-attachments/assets/e84b6fd1-5fe9-48d4-a478-14eb5a365bd9" />
 
   
 .✦ ݁˖ " <ins>***q***uote / ***l***yric</ins> " .. :: 𐔌՞. .՞𐦯 <img width="20" height="auto" alt="b32" src="https://github.com/user-attachments/assets/265c99fc-b292-4906-85b1-66bb016a6250" />
@@ -64,7 +64,7 @@ readme for @koraaline :] n2fu unless requester ! no inspo:[ please dont steal ok
 
 ( ^ o ^ ) . . *credits to @ColorfulMush for readme:)*
 
-> quote / lyric . . <img width="20" height="20" alt="y66" src="https://github.com/user-attachments/assets/b945c0f5-5604-4edb-93ae-f539c1f34393" />
+> quote / lyric connecting to the first quote/lyr . . <img width="20" height="20" alt="y66" src="https://github.com/user-attachments/assets/b945c0f5-5604-4edb-93ae-f539c1f34393" />
 
 ╰‿╯ : : .⋆ " <ins>***q***uote / ***l***yric</ins> " . . <img width="20" height="20" alt="y34" src="https://github.com/user-attachments/assets/822795e8-53ff-45cf-b715-4cde55be8d64" />
 
