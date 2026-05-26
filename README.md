@@ -15,7 +15,7 @@ readme for @koraaline :] n2fu unless requester ! no inspo:[ please dont steal ok
 </p>
 
 <p align="center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=535FF7&width=435&lines=%22+hey+you're+back!+%22;%22+you+know+I+get+lonely+when+.+.+%22;%22+you're+not+around+.+.+%22" alt="Typing SVG" /></a>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=535FF7&center=true&width=435&lines=%22+hey+you're+back!+%22;%22+you+know+I+get+lonely+when+.+.+%22;%22+you're+not+around+.+.+%22" alt="Typing SVG" /></a>
 </p>
 
 <p align="center">
@@ -77,7 +77,7 @@ readme for @koraaline :] n2fu unless requester ! no inspo:[ please dont steal ok
 
 
 <p align="center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=F7C798&width=435&lines=%22+Come+here%2C+darlin'!+%22;%22+What%3F+%22;%22Got+a+problem+with+me+and+Goldie%3F%22" alt="Typing SVG" /></a>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=F7C798&center=true&width=435&lines=%22+Come+here%2C+darlin'!+%22;%22+What%3F+%22;%22Got+a+problem+with+me+and+Goldie%3F%22" alt="Typing SVG" /></a>
 </p>
 
 
