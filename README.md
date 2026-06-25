@@ -31,7 +31,7 @@
 
 ## $${\color{#98EBC7}> \space what \space is \space \color{#F9FADC}HARP\color{#98EBC7}WINGS' \space currency \space ?}$$
 
-> They have their own currency called harpcoins. it is used to buy shop items that includes extra claim slots, custom role, and server name edit. the shop also offers colorpacks, addons, limited items, and others! though they havent made it yet, thee has to be patient since staffs have lives of their own outside this regiment. you may get harpcoins from events, giveaways, or booster perks.
+> we have our own currency called harpcoins. it is used to buy shop items that includes extra claim slots, custom role, and server name edit. the shop also offers colorpacks, addons, limited items, and others! though they havent made it yet, thee has to be patient since staffs have lives of their own outside this regiment. you may get harpcoins from events, giveaways, or booster perks.
 
 ---
 
