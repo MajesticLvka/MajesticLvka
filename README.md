@@ -33,8 +33,8 @@ $${\color{#F9FADC}HARPWINGS \space is \space a \space regiment \space that's \sp
 
 $${\color{#F9FADC}They \space have \space their \space own \space currency \space called \space harpcoins. \space it \space is \space used \space to \space buy \space shop \space items \space that \space includes \space extra \space claim \space slots, \space custom \space role, \space and \space server \space name \space edit. \space the \space shop \space also \space offers \space colorpacks, \space addons, \space limited \space items, \space and \space others! \space though \space they \space haven't \space made \space it \space yet, \space thee \space has \space to \space be \space patient \space since \space staff \space have \space lives \space of \space their \space own \space outside \space this \space regiment. \space you \space may \space get \space harpcoins \space from \space events, \space random \space activities, \space or \space booster \space perks.}$$
 
-$${\color{#98EBC7}> \space all \space personal \space questions \space about \space past \space members/problems \space will \space be \space handled \space in \space dms.}$$
-
 ---
+
+$${\color{#98EBC7}> \space all \space personal \space questions \space about \space past \space members/problems \space will \space be \space handled \space in \space dms.}$$
 
 <img width="1000" height="auto" alt="14612096" src="https://github.com/user-attachments/assets/40812258-1d20-4c39-849b-54fc8c6a2d8b" />
